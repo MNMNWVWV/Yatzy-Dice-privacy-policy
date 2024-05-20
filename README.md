@@ -1,0 +1,1 @@
+Yatzy-Dice-privacy-policy
